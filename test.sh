@@ -1,2 +1,0 @@
-#!/bin/sksalksalkmxmlzx
-#sakl;
